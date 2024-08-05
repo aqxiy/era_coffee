@@ -1,1 +1,22 @@
 # era_coffee
+
+Supplies: 
+1. 50 mL beaker (ULAB brand).
+2. Coffee Mug shapes/sized like linked
+https://www.target.com/p/16-57oz-porcelain-coffee-mug-white-threshold-8482/-/A-13891751
+3. Tablespoon for measuring and stirring
+4. 1100 Watt microwave with (1-10) power levels
+5. Fridge/freezer filtered water
+
+Process:
+1. Deposit 150mL water in mug using beaker
+2. Place mug in microwave and set to power level 4 for 4 minutes. Allow 3 minute cooldown in microwave (door closed).
+3. After 20 seconds on counter, place 12 raisins 2 at a time at rough center. Wait 15 seconds.
+4. Stir 30 seconds.
+5. Wait 4 minutes.
+6. Add tablespoons of Starbucks French Roast from a small ceramic cup.
+7. Wait 15 seconds.
+8. Stir 30 seconds.
+9. Wait 5 minutes
+
+aqxiy/sortdrink
