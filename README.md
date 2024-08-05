@@ -2,7 +2,7 @@
 
 Supplies: 
 1. 50 mL beaker (ULAB brand).
-2. Coffee Mug shapes/sized like linked
+2. Coffee Mug shaped/sized like linked
 https://www.target.com/p/16-57oz-porcelain-coffee-mug-white-threshold-8482/-/A-13891751
 3. Tablespoon for measuring and stirring
 4. 1100 Watt microwave with (1-10) power levels
