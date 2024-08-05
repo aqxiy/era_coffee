@@ -15,7 +15,7 @@ Process:
 3. After 20 seconds on counter, place 12 raisins 2 at a time at rough center. Raisins separated at removal from fridge and allowed 2 min wait in separated state. Wait 15 seconds.
 4. Stir 30 seconds.
 5. Wait 4 minutes.
-6. Add tablespoons of Starbucks French Roast from a small ceramic cup.
+6. Add 2 tablespoons of Starbucks French Roast from a small ceramic cup.
 7. Wait 15 seconds.
 8. Stir 30 seconds.
 9. Wait 5 minutes
